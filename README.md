@@ -1,0 +1,2 @@
+# mayin-tarlasi
+mayin tarlasi
